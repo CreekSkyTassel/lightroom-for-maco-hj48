@@ -1,4 +1,4 @@
-
+smart CapCut for macOS Tool | video-trimming + layer-based-editing is the best CapCut for macOS tool, featuring video-trimming and layer-based-editing. Powerful, efficient, and
 
 
 
